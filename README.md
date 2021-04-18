@@ -2,7 +2,7 @@
 - 👀 I’m interested in Life
 - 🌱 I’m currently learning - No
 - 💞️ I’m looking to collaborate on - NO
-- 📫 How to reach me - don't
+- 📫 How to reach me - No
 
 <!---
 Travn1k/Travn1k is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
