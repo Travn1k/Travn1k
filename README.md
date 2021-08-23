@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Travn1k
+- 👋 Hi, I’m @IdleRAam
 - 👀 I’m interested in Life
 - 🌱 I’m currently learning - No
 - 💞️ I’m looking to collaborate on - NO
